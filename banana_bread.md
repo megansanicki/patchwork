@@ -41,12 +41,12 @@
 
 **Nutritional Information (per serving):**
 
-145 calories
-2 g protein
-5 g fat
-24 g carbohydrate
-1 g fiber
-27 mg cholesterol
-155 mg sodium
-37 mg calcium
-0.8 mg iron
+* 145 calories
+* 2 g protein
+* 5 g fat
+* 24 g carbohydrate
+* 1 g fiber
+* 27 mg cholesterol
+* 155 mg sodium
+* 37 mg calcium
+* 0.8 mg iron
