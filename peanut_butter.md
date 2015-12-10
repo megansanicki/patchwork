@@ -25,7 +25,7 @@
 
 *For chunky peanut butter:*
 
-1. Take about ¼ cup out of your 1½ cups of peanuts and set them aside.
+1. Take about 1/4 cup out of your 1 1/2 cups of peanuts and set them aside.
 2. Mix the rest of the peanuts with the oil, and pour the mixture into the food processor.
 3. Process the mixture until it's very smooth, then stir in the peanuts that you had set aside.
 4. Process a few seconds more to create the chunks in your chunky peanut butter.
@@ -33,14 +33,3 @@
 
 **How much does this recipe make?**
 12 2-tablespoon servings
-
-**Nutritional analysis (per serving):**
-116 calories
-4.3 g protein
-10.25 g fat
-4 g carbohydrate
-1.5 g fiber
-0 mg cholesterol
-1 mg sodium
-10 mg calcium
-0.4 mg iron
