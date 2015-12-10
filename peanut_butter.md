@@ -32,4 +32,5 @@
 5. Store your chunky peanut butter in a sealed container in the fridge. It will be good for 2 weeks.
 
 **How much does this recipe make?**
+
 12 2-tablespoon servings
