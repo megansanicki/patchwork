@@ -17,13 +17,13 @@
 
 **Directions:**
 
-**For smooth peanut butter:**
+*For smooth peanut butter:*
 
 1. Mix the peanuts with the peanut oil, and pour the mixture into the food processor.
 2, Process the mixture until it's very smooth.
 3. Store your smooth peanut butter in a sealed container in the fridge. It will be good for 2 weeks.
 
-**For chunky peanut butter:**
+*For chunky peanut butter:*
 
 1. Take about ¼ cup out of your 1½ cups of peanuts and set them aside.
 2. Mix the rest of the peanuts with the oil, and pour the mixture into the food processor.
